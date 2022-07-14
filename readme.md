@@ -1,1 +1,1 @@
-
+Want to take a advantage over other players? check out this shit, using advanced methods and predictions we have created a script that is no ordinary script, we promise full on hits every shot and a slider to make sure you look human (humanizer). releasing soon 
